@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JustAnotherGuy82 
+- 👀 I’m interested in code and game design 
+- 🌱 I’m currently learning code 
+- 💞️ I’m looking to collaborate on nothing currently
+- 📫 How to reach me i would not like to diplay that currently 
